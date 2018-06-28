@@ -1,2 +1,0 @@
-# LewisU
-School
